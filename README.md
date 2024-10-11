@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Abbahbesse1
 - 👀 I’m interested in: Web 3.0 spaces 🌐
 - 🌱 I’m currently learning Blockchain Technology and it's application DApps and software development 
-- 💞️ I’m looking to collaborate on: Web3 Jobs such as moderator or community manager 
+- 💞️ I’m looking to collaborate on: Web3 Jobs such as moderator, Web3 educator, community manager & research analyst 
 - 📫 How to reach me: @Abubakarbesse14@gmail.com
 - 😄 Pronouns: Him 🚹
 - ⚡ Fun fact: A lab with experimental projects
